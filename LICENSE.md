@@ -1,4 +1,4 @@
-
+anime card collection Scripts top is the best anime card collection Script, featuring one-hit kill and auto-upgrade. Safe and powerful for all your
 
 
 
